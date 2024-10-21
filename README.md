@@ -1,4 +1,4 @@
-### Olá! Eu sou o Jean Blasques 🖐️
+### Olá! Eu sou Jean Blasques 🖐️
 
 <p>
   <a href="https://mailto:jeanvictorblasques@hotmail.com">
